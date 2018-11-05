@@ -1,3 +1,5 @@
+There is no tolerance for objectionable content or abusive users
+
 Privacy Policy
 Sagar Jaiswal built the Sup app as a Freemium app. This SERVICE is provided by Sagar Jaiswal at no cost and is intended for use as is.
 
